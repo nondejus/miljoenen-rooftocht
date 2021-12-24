@@ -1,1 +1,11 @@
 # mediapark-miljoenen-rooftocht
+
+# mediapark
+https://en.wikipedia.org/wiki/Media_Park_(Hilversum)
+
+# robbery
+https://en.wikipedia.org/wiki/Robbery
+
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
